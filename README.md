@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+- 📫 How to reach me: JayIsDeBeste#8856 (Discord)
 <!--
 **QuarHub/QuarHub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
